@@ -9,8 +9,4 @@
 ](https://www.youtube.com/watch?v=6QUd5k2S91M)
 
 
-[![youtube02](https://user-images.githubusercontent.com/34574033/54472565-7539ae80-480d-11e9-8f79-593c895ac683.PNG)
-](https://www.youtube.com/watch?v=OyL9Ys0tztc)
-
-
 https://hampen2929.com/boomerangsnake/13
